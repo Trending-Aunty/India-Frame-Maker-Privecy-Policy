@@ -1,1 +1,0 @@
-# India-Frame-Maker-Privecy-Policy
